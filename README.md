@@ -1,0 +1,2 @@
+# auraseed
+KP GAN JANGAN DIOTAK ATIK OK TQ
